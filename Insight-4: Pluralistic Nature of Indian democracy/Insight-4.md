@@ -1,1 +1,1 @@
-Many smaller parties and individual Candidates gained seats in different states depicting the Pluralistic nature of indian Democracy.
+Various smaller parties and independent candidates also gained representation, highlighting the pluralistic nature of Indian democracy. Parties like the Viduthalai Chiruthaigal Katchi (VCK), Yuvajana Sramika Rythu Congress Party (YSRCP), and others managed to secure seats​.
