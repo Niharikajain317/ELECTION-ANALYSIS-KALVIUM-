@@ -1,0 +1,1 @@
+In this analysis, we find about the impact of religion on determining the winning party in a state. We find that the muslims holds the maximum weight of 28% in determining the winning party.
